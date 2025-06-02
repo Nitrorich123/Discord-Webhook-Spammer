@@ -1,0 +1,1 @@
+Hi so I was bored and made a discord webhook spammer and uhh discord dont sue me its js for entertainment purposes and i discourage all bad behavior so im js wagging my finger at u so tou dont do this a lot and thank uuu
